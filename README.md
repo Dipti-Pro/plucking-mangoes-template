@@ -1,1 +1,2 @@
-## do as per PDF
+follow the snap shots
+
